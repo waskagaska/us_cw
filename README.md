@@ -1,1 +1,1 @@
-jednak nie czytaj
+=^-^= d[o-o]b
